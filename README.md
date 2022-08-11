@@ -1,2 +1,2 @@
 ⚠️ SOLO MOVISTAR.
-⚠️Nueva actualización 08/08/22, v15
+⚠️Nueva actualización 11/08/22, v16👈⛔
